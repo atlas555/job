@@ -1,5 +1,5 @@
 # 张晓龙
-[个人照](http://pan.baidu.com/s/1sjvBr9j)
+![个人照](http://pan.baidu.com/s/1sjvBr9j)
 
 ---
 
